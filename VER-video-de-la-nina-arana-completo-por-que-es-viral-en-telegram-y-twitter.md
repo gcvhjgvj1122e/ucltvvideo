@@ -1,6 +1,12 @@
 En junio de 2022, las redes sociales se vieron inundadas por un video íntimo y completo que involucraba a una adolescente colombiana de 14 años, Yeimi Rivera, apodada "La Niña Araña". El contenido se difundió sin su consentimiento, lo que generó una ola de comentarios y especulaciones en plataformas como Telegram, Twitter (ahora X) y Reddit.
 
-La situación afectó profundamente la salud mental de Yeimi, y se propagaron rumores sobre su supuesto suicidio, los cuales los desmintió su hermana.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 
 ¿Qué es el clip viral de la niña araña?
